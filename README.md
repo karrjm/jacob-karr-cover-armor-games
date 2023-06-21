@@ -1,5 +1,4 @@
-# jacob-karr-cover-armor-games
-Jacob's cover letter for Armor Games.
+# jacob-karr-cover-armor-games-studios
 
 Dear Team at Armor Games Studios,
 
